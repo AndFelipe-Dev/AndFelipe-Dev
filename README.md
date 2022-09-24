@@ -1,4 +1,4 @@
-### Hi there 👋
+### ✌️
 
 - 🔭 IEstudante do IFAAL
 - 🌱 I’m currently learning ...
